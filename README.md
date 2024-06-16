@@ -2,6 +2,8 @@
 
 - 🌱 I’m currently learning java
 
-- 💿 discord id : joker.clownn
+- 💿 Discord id : joker.clownn
 
-- minecraft ign : flahsy
+- ⛰️ Minecraft ign : flahsy
+
+- 🇹🇼 From Taiwan !!!
