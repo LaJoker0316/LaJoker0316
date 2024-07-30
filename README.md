@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @LaJoker0316
+- 👋 Hi, I’m @Sasuke0316
 
 - 🌱 I’m currently learning java
 
-- 💿 Discord id : joker.clownn
+- 💿 Discord id : matt_0316
 
-- ⛰️ Minecraft ign : flahsy
+- ⛰️ Minecraft ign : VI0DER
 
 - 🇹🇼 From Taiwan !!!
